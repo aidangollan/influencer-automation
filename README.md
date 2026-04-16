@@ -1,1 +1,1 @@
-# influencer-automation
+I want a short video, about 4 lines, talking about the Dior Addict Lip Glow.
